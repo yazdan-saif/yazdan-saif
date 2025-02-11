@@ -1,5 +1,5 @@
 Hi, I’m @yazdan-saif
-I’m interested in java or c++
+I’m interested in java or python
 I’m currently persuing btech
 I’m looking to collaborate on new projects
 How to reach me - via email
